@@ -1,0 +1,1 @@
+Fiz esse game com js, para melhorar minha logica e fazer algo divertido, eu amo programar e fazer códigos assim me faz saber o por que de eu ter escolhido me tornar um programador, sigo prendendo e errando e evoluindo todos os dias !!
